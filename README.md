@@ -1,4 +1,4 @@
-- yo its @Jojobinx17
+- yo its @Jojobinx17 wassup
 
 <!---
 Jojobinx17/Jojobinx17 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
